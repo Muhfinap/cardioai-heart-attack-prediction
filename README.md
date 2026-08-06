@@ -162,7 +162,8 @@ Always consult a qualified healthcare professional.
 
 GitHub: https://github.com/Muhfinap
 
-LinkedIn: *(Add your LinkedIn profile here)*
+LinkedIn: *(www.linkedin.com/in/
+muhfinapp)*
 
 ---
 
